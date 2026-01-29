@@ -1,0 +1,1 @@
+# Conjunto-de-Datos-de-Minerales-para-la-Industria-de-Semiconductores
